@@ -1,4 +1,4 @@
-## Akufmi Sato
+## Akifumi Sato
 ### About/Blog
 [https://akfm.dev](https://akfm.dev)
 
